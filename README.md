@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Lypheal!
-- 🙂 I am 13 Years old.
 - 👀 I’m interested in NFTs and blockchains. 
 - 🌱 I’m currently learning about NFTs.
 - 💞️ I’m the creator of TallNecks NFT collection.
