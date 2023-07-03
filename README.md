@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Lypheal!
 - 👀 I’m interested in NFTs and blockchains. 
 - 🌱 I’m currently learning about NFTs.
-- 💞️ I’m the creator of TallNecks NFT collection.
-- 📫 You can contact me on my Discord at Bhavya#4386
+- 📫 You can contact me on my Discord at bhavya
